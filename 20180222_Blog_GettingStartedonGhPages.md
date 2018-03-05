@@ -30,9 +30,8 @@ my only issue with this is the redundancy after editting one of the layouts. I'm
 ---  
 
 ---
-<details>
-<summary> First Post </summary>
-<br>
+
+
 
 # Getting Started on Github Pages
 
@@ -56,5 +55,5 @@ Things I tell myself I need to learn but forget.
 - SQL
 - Javascript
 - Korean *(Yeah I know...)*
+    
 
-</details>
