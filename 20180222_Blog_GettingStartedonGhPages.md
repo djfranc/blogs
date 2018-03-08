@@ -5,7 +5,8 @@ title: The Bloggerdome
 
 ---
 
-# MARCH 7th 2018: Define Your Success
+# March 7th 2018: 
+# Define Your Success
 
 #### *If personal success is all about the riches, then why do the richest people still have that need to succeed?*
 
@@ -19,7 +20,7 @@ Having crossed paths and speaking to her again as recently as of last month, wha
 
 ![](https://seanwes.com/wp-content/uploads/2014/04/you-have-one-life-set-bigger-goals.jpg)
 
-Witnessing this person already making sacrifices, taking steps to making major life changes in order to do what she feels is what she's always wanted to do, it was a moment of reaching enlightenment in the making. **We see success as a comparative measurement against other people status and wealth.** It can be, but I truly believe success is different for everyone. It is a personal reflection of our values and what is important to us. Personally knowing who I want to be and being able to live it out most effectively is what success is to me today.
+Witnessing this person already making sacrifices, taking steps to making major life changes in order to do what she feels is what she's always wanted to do, it was a moment of reaching enlightenment in the making. **We see success as a comparative measurement against the status and wealth of those around us.** It can be, but I truly believe success is different for everyone. It is a personal reflection of our values and what is important to us. Personally, knowing who I want to be and being able to live it out most effectively is what success is to me.
 
 
 *"He early discovered that wealth may be more of a handicap than a help because the comforts
@@ -41,7 +42,8 @@ or inspirational work.
 not a creative process until you have made it so by transformation within you. -->
 ---
 
-# MARCH 1st 2018: The Light at the End of the Tunnel
+# MARCH 1st 2018: 
+# The Light at the End of the Tunnel
 
 
 #### *In life, you should learn to pull up your sleeves and make yourself at home with sticks and stones...*
