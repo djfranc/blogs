@@ -10,7 +10,7 @@ title: The Bloggerdome
 
 #### I have no quotes for this post but I recommend reading the book "How to Win Friends and Influence People" by Dale Carnegie. It was first published in 1936 but the wealth of information obtained from reading it is invaluable and timeless. If you do decide to pick it up, read slow and reflect after every chapter.
 
-[](http://universaljp.org/wp-content/uploads/2017/08/Sem-T%C3%ADtulo-1.jpg)
+![](http://universaljp.org/wp-content/uploads/2017/08/Sem-T%C3%ADtulo-1.jpg)
 
 We're still in business folks! I am back from a month (half of a month more accurately) filled with unique and interesting experiences. I have been exploring myself, the people around me and applying every piece of valuable knowledge handed to me. Let's just say that my birthday passed around that time period and I almost forgot about it. Yeah! No biggie! My birthday week was enjoyable on smaller scale and I wouldn't have traded the people I shared it with with anyone else.
 
