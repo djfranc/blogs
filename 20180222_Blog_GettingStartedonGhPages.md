@@ -4,6 +4,7 @@ layout: default
 title: The Bloggerdome
 
 ---
+#### Scroll Down For Older entries
 
 # March 25th 2018: 
 # Taking a step back and being critical
